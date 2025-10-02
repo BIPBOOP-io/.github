@@ -30,7 +30,7 @@ We mix skills in **development, design, and music** to create playful, colorful,
 
 
 ## 📫 Connect With Us
-- 🌐 [Website](https://alexisrqs.com) *Coming soon...*  
+- 🌐 [Website](https://bipboop.io/) **NEW!**  
 - 🎥 [YouTube](https://www.youtube.com/) *Coming soon...*  
 - 💨 [Steam](https://store.steampowered.com/) *Coming soon...*
 - 🐦 [Itch.io](https://itch.io/) *Coming soon...* 
